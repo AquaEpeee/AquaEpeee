@@ -1,0 +1,3 @@
+- 👋 @AquaEpeee
+- 👀 I’m interested in doing random stuff on Minecraft
+- 😄 Pronouns: He/Him
